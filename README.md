@@ -54,7 +54,7 @@ I’m passionate about creating practical applications and exploring how softwar
   - Contribute to meaningful projects with a collaborative team
   
 📫 Let’s Connect
- - 💼 LinkedIn: (add link when ready)
+ - 💼 LinkedIn: (link will be added when ready)
  - 📧 Email: (later)
 
 ⭐ Always learning. Always building.
